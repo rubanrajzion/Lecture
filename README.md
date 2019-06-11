@@ -1,1 +1,1 @@
-# Lec
+# Lecture
