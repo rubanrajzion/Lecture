@@ -1,4 +1,5 @@
 # Lecture
+<<<<<<< HEAD
 
 dsadasd
 ddssqqwerr
@@ -30,3 +31,6 @@ sad
 fds
 
 esrxdcfvtgyhn
+=======
+hello world
+>>>>>>> 73f79d59e95672287a2326f9f2101600ee7f0d94
