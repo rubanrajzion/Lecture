@@ -1,2 +1,1 @@
-# Lecture
-Rubanlikeindiangirls
+# Lec
