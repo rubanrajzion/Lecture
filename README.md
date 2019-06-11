@@ -1,3 +1,12 @@
-# Lecture
-
-RubanloveKann
+-ruban
+love
+kann?
+or
+Amalina
+ah
+ah
+ah
+ah
+aha
+ah
+AMALINA
