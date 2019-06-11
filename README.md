@@ -1,7 +1,32 @@
 # Lecture
 
-<<<<<<< HEAD
-dsfasdf
-=======
+dsadasd
+ddssqqwerr
 Leader: Ruban Raj Murugan
->>>>>>> ec1ed29cd3303a437e02adc4f4be37bf02660eea
+dsdddsasdssdahewfewqfwfd
+fda
+f
+dsa
+fsad
+fsad
+f
+sd
+fds
+afsa
+df
+dsa
+fasd
+fads
+fasd
+f
+asd
+fd
+ds
+afs
+fad
+fdsa
+f
+sad
+fds
+
+esrxdcfvtgyhn
